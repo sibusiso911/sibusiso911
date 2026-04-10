@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on App dev and web Dev
 - 📫 How to reach me email -sibusisommako21@gmail.com
 -                          -0746006697
--         q                 -linked in Sbusiso Spin
+-         q                 -linked in Sbusiso Mmako
 - 😄 Pronouns: ...
 - ⚡ Fun fact: -Problem solving
 -             -Gamer
